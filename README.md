@@ -43,7 +43,5 @@ miko酱ww
 琳汐汐
 
 
-![alt text](https://github.com/[Shiyun_Kong]/[Coser-Quotes]/blob/[main]/腥味猫罐.jpg?raw=true)
-
-
+![Alt text](截图/腥味猫罐.jpg?raw=true "Title")
 
