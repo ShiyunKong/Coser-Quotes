@@ -1,5 +1,9 @@
-这里是记录各种coser打拳言论的（极端女权）
+这里是记录各种coser打拳言论的（极端女权）。
+
+
 如果你有我这里没有的 来者不拒，发给我：
+
+
 私信我；建一个pull request；steam或者各种平台找我；网盘发我；磁力链接都可以。
 
 
@@ -24,10 +28,12 @@ miko酱ww
 铁板欧尼酱
 羊小雪
 
+
 有一点资料：
 菌烨tako
 枣糕
 蛋黄mayo 
+
 
 完全没有：
 夏奇拉ovo
@@ -36,6 +42,8 @@ miko酱ww
 杜杜
 琳汐汐
 
+
+![alt text](https://github.com/[Shiyun Kong]/[Coser-Quotes]/blob/[main]/截图/腥味猫罐.jpg?raw=true)
 
 
 
