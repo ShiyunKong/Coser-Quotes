@@ -1,4 +1,5 @@
 ![Visitor Count](https://komarev.com/ghpvc/?username=ShiyunKong&color=blue)
+2025年7月20号开始计数
 
 这里是记录各种coser打拳言论的（极端女权）。
 
@@ -10,7 +11,7 @@
 
 
 已展出：
-w百合欧皇子ww，Kitaro绮太郎，坂坂白，汤面桢子，花兮_honoka，欣小萌，肉哥三缺一，扇宝，肃雨雨雨，小菜刀夫斯基，叶叶，前羽rrr，白金Saki，miko酱ww
+走路摇zly，w百合欧皇子ww，Kitaro绮太郎，坂坂白，汤面桢子，花兮_honoka，欣小萌，肉哥三缺一，扇宝，肃雨雨雨，小菜刀夫斯基，叶叶，前羽rrr，白金Saki，miko酱ww
 
 
 资料差不多：
