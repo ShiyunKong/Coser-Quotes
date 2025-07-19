@@ -1,3 +1,5 @@
+![Visitor Count](https://komarev.com/ghpvc/?username=ShiyunKong&color=blue)
+
 这里是记录各种coser打拳言论的（极端女权）。
 
 
